@@ -7,3 +7,11 @@ Helmer barcos just edited this line
 mi madre se llama Claudia Mosquera, vive en Cartagena.
 
 Helmer escribe 1
+
+Helmer barcos 3232323 edited this 233
+Helmer barcos 3232323 edited this 233
+Helmer barcos 3232323 edited this 233
+Helmer barcos 3232323 edited this 233
+Helmer barcos 3232323 edited this 233
+Helmer barcos 3232323 edited this 233
+Helmer barcos 3232323 edited this 233
