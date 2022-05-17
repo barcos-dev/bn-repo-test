@@ -1,6 +1,6 @@
 # bñ-repo-test
 
-This is test repository for teamwork with wilmer nuñez
+This is "prueba" repository for the group with wilmer nuñez
 
 Helmer barcos just edited this line
 
